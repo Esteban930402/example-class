@@ -2,4 +2,3 @@
 Kevin Cambindo
 Esteban Andres Espinosa
 
-que vaina pa complicada
